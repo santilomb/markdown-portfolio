@@ -1,0 +1,1 @@
+Algunas de las cosas que estoy aprendiendo en estos dias son *divertidas* otras **interesantes**, algunas las usaré en el **corto tiempo** y otras tal vez * **no** las use nunca*; pero en todos los casos esta **genial** tener ganas de *aprender algo todos los dias*.
